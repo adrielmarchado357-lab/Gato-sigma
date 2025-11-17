@@ -1,2 +1,0 @@
-# Gato-sigma
-# Gato-sigma
